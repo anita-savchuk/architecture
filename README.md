@@ -6,13 +6,13 @@ A famous French company that specializes in the construction of tiny houses on w
 
 Not everyone has the opportunity to build or buy a traditional house, but you have to live somewhere, especially if you have small children. A young mother found an original way out of the situation, turning to the company Baluchon, which for many years engaged in modeling and building tiny houses. And she was not mistaken, because the specialists of Baluchon were able to create quite a comfortable and cozy house on a two-axle trailer for permanent residence, even though its length is only 6 meters.
 
-![Image](anita-savchuk2.jpg)
+![Image](anita-savchuk3.jpg)
 
 - The house, called Tiny House Siana (the name of the daughter of the owner, written backwards), like most models of the French company, has a calming appearance due to the use of natural materials. The main finishing material of the facade is cedar panels, laid in a special way, and aluminum sheets of roofing.
 
 - The interior design is also characterized by naturalness and eco-friendliness. To visually increase the interior space, the ceiling and flooring are made of light wood, and the walls are painted white. Several large windows and partial glazing of the front door, through which a lot of sunlight enters the house, contributed to this.
 
-![Image](anita-savchuk3.jpg)
+![Image](anita-savchuk2.jpg)
 
 Thanks to the height of the ceilings, we were able to organize a two-level living space, which allowed to arrange a miniature, but quite functional zones. Immediately at the entrance is the living room with a folding sofa bed, which easily converts into additional sleeping space for guests. By the window is set tabletop, which can be used as a dining area and as an office, because Blandina, the owner of the house - a freelancer. There is also a wood-burning stove in the living room to provide warmth during the colder months.
 
